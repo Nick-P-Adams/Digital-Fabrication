@@ -1,0 +1,1 @@
+Riichi Mahjong Middle Piece by rootinthemood on Thingiverse: https://www.thingiverse.com/thing:4800883

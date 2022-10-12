@@ -1,0 +1,1 @@
+Mahjong Scoring Sticks by LeoEA on Thingiverse: https://www.thingiverse.com/thing:4709949
